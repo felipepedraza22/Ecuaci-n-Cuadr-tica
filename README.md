@@ -1,0 +1,1 @@
+# Ecuaci-n-Cuadr-tica
